@@ -10,3 +10,4 @@ https://github.com/arinaeliseeva/hw6/blob/master/%D1%86%D0%B33.png
 Часть 2
 
 https://github.com/arinaeliseeva/hw6/blob/master/%D1%86%D0%B34.png
+https://github.com/arinaeliseeva/hw6/blob/master/%D1%86%D0%B35.png
